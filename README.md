@@ -1,2 +1,2 @@
 # Free-math-worksheet
-Free, down load now
+Free, download now
